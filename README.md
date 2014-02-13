@@ -1,4 +1,3 @@
 Nathan
 ======
-
-Something I made for my boyfriend for Valentines Day. Please excuse my noobness
+I have no idea what I'm doing..
